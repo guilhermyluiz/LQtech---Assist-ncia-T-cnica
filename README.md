@@ -1,0 +1,1 @@
+# LQtech---Assist-ncia-T-cnica
